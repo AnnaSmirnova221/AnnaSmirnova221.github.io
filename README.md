@@ -1,4 +1,4 @@
 # AnnaSmirnova221.github.io
 Сайт для пользователя AnnaSmirnova221
 Здравствуйте, это сайт для публикации заданий
-[Скринкаст] (https://youtu.be/yMgbNglAgHI)
+[Скринкаст] (https://www.youtube.com/watch?v=yMgbNglAgHI&feature=youtu.be)
