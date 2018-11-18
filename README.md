@@ -25,3 +25,19 @@
 # [задание 5.1](https://www.dropbox.com/s/5jv05286pt4u6p4/%D0%BB%D1%8C%D1%82.docx?dl=0)
 
 # [задание 5.2](https://www.dropbox.com/s/m5ihvq714y4c82o/%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5%205.2.docx?dl=0)
+
+# [задание 7](https://www.dropbox.com/s/dproi5yxay1s99o/7.docx?dl=0)
+
+# [задание 9.1 ](https://www.dropbox.com/s/f2m5aylc8mdxmfy/9.1.docx?dl=0)
+
+# [задание 9.2](https://www.dropbox.com/s/xip0n69sj43x2h3/9.1%20%281%29.docx?dl=0)
+
+# [задание 11.1](https://www.dropbox.com/s/bihlq2jyvpv1qcm/%D0%9F%D0%B5%D1%80%D1%81%D0%BF%D0%B5%D0%BA.docx?dl=0)
+
+# [задание В 5.2](https://www.dropbox.com/s/aessg4vxvj2rx06/%D0%92.5.2..docx?dl=0)
+
+# [задание В 8.1](https://www.dropbox.com/s/qhhjmse8q5ttmdt/%D0%B2%208%201.docx?dl=0)
+
+# [задание В 10.2 ](https://www.dropbox.com/s/fe7hqvgt9k5qasw/%D0%B2%2010%202.docx?dl=0)
+
+# [задание В 9.1 ](https://www.dropbox.com/s/f4cq9jkc24rm1s6/%D0%B2%209%201.docx?dl=0)
