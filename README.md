@@ -41,3 +41,9 @@
 # [задание В 10.2 ](https://www.dropbox.com/s/fe7hqvgt9k5qasw/%D0%B2%2010%202.docx?dl=0)
 
 # [задание В 9.1 ](https://www.dropbox.com/s/f4cq9jkc24rm1s6/%D0%B2%209%201.docx?dl=0)
+
+# [задание В 9.2](https://www.dropbox.com/s/m2id05a65spy0ep/%D0%B2%209.2.docx?dl=0)
+
+# [задание В 6.2](https://www.dropbox.com/s/7k9vq7q48ykisp5/%D0%B26.2.docx?dl=0)
+
+# [задание 2.1](https://www.dropbox.com/s/vbors15f4uwjq35/%D0%A0%D0%B0%D0%B7%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D1%82%D1%80%D0%B5%D0%B1%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B82.1.docx?dl=0)
